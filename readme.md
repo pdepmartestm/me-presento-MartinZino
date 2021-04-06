@@ -1,1 +1,1 @@
-¡Hola! Mi nombre es Martín Zino.Vivo en Avellaneda. Me gustan los videojuegos y los autos. Tengo 21 años
+¡Hola! Mi nombre es Martín Zino.Vivo en Avellaneda. Me gustan los videojuegos y los autos. Tengo 21 años. Soy Técnico en Computación y arranqué en 2019 la carrera pero no pude cursarla el año porque estaba re cursando discreta
